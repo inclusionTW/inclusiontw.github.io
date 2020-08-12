@@ -2,8 +2,10 @@
 > Introductory Page for InclusionTW 
 
 ## Contact us through
+- [Facebook](https://fb.me/inclusiontw) (preferred)
 - [Email](mailto:hi@inclusiontw.site)
-- [Facebook](https://fb.me/inclusiontw)
+- [Twitter](https://twitter.com/inclusion_tw)
+- [Instagram](https://instagram.com/inclusion_tw)
 
 We are Inclusion, a team formed by students from National Taiwan University (NTU) initiating systematic and institutional plans of academic accommodations, which we would refer to as “inclusion plans”, for college students suffering from mental illnesses. 
 
